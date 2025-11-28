@@ -2,7 +2,7 @@
 - 👀 I’m interested in machine learning and web development
 - 🌱 I’m currently learning web development
 - 💞️ I’m looking to collaborate on anything
-- 📫 How to reach me dhilan12shah@gmail.com
+- 📫 How to reach me dhilanmd2006@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I play volleyball
 
